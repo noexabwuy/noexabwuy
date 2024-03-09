@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @noexabwuy
+- 👀 I’m interested in jerking
+- 🌱 I’m currently learning C++/Lua
+- 📫 How to reach me: tg - @noexabwuy
